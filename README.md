@@ -1,2 +1,1 @@
-# Fridrihs_15-
-„Ieskaites darbs VKR (cits)” 
+# Fridrihs_15-„Ieskaites darbs VKR (cits)” 
